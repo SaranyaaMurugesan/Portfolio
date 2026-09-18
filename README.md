@@ -1,2 +1,2 @@
 # Portfolio
-This is My Protfolio.
+From curiosity to creation.
